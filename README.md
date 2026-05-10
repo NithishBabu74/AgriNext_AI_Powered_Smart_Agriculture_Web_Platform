@@ -1,0 +1,1 @@
+# AgriNext_AI_Powered_Smart_Agriculture_Web_Platform
